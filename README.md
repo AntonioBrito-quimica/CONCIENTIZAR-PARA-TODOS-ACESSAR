@@ -1,0 +1,2 @@
+A acessibilidade e inclusão são temas fundamentais na construção de uma sociedade mais justa e igualitária. Nos últimos anos, a discussão sobre esses assuntos ganhou destaque, mostrando a importância de garantir que todos, independentemente de suas capacidades físicas ou mentais, tenham acesso aos mesmos direitos e oportunidades. Essa conscientização é essencial não apenas para promover a dignidade humana, mas também para fomentar a diversidade e o enriquecimento cultural.
+![image](https://github.com/user-attachments/assets/78be9594-1798-48a6-b738-6ea44803c311)
